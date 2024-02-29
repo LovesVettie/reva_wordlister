@@ -1,0 +1,1 @@
+Bu Kod Reva Cyber Adı Altında H04x Tarafından Yazılmıştır Lütfen Kodları Çalmayınız!
